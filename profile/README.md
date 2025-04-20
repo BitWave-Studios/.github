@@ -9,7 +9,7 @@ Our main goal is to create fun, enjoyable games and projects for everyone.
 
 **Useful Links**
 - Our [Bluesky](https://bsky.app/profile/bitwavestudio.bsky.social)
-- Our [Discord](https://discord.gg/9bHgng34fS)
+- Our [Discord](https://discord.gg/scaSBABhWr)
 
 - - -
 
